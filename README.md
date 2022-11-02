@@ -9,6 +9,8 @@ Student Number: 100733209
 
 My Number is ODD
 
+Read and Watched the following:
+
 https://en.wikipedia.org/wiki/Wrecking_Crew_(video_game) 
 
 https://www.youtube.com/watch?v=vCF40ee11JQ
